@@ -1,0 +1,1 @@
+**Responsywnośc strony *Kontakt* **
